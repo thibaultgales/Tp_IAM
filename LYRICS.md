@@ -7,8 +7,10 @@ L'École du micro d'argent
 L'École du micro d'argent
 L'École du micro d'argent
 L'École du micro d'argent
-L'École du micro d'argent
-                                                             Shurik'n 
+L'École du micro d'argent   
+
+Shurik'n 
+
 Assis en tailleur, voilà des heures que je médite
 Sur ma montagne et je n'arrive pas à faire le vide
 Je focalise sur le diaphragme, j'augmente mon énergie
